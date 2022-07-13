@@ -8,5 +8,5 @@
 - Lasanha de carne moída
 
 #### Doces:
-- Pavê
+- Pavê de chocolate
 - Bolo de cenoura
