@@ -131,3 +131,7 @@
 - Despeje em uma tigela a manteiga, o chocolate em pó, o açúcar e o leite, depois misture.
 - Leve a mistura ao fogo e continue misturando até obter uma consistência cremosa, depois despeje a calda por cima do bolo.
 
+Link de Referência: 
+
+[Site: Tudo Gostoso](https://www.tudogostoso.com.br)
+
